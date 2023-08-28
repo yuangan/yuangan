@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 Contact Me:
 
-✉ Email: mf1733013@smail.nju.edu.cn
+✉ Email: ganyuan@zju.edu.cn
 
 <!-- ✧ Website: http://zdzheng.xyz -->
 
